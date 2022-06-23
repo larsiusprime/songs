@@ -49,15 +49,17 @@ The ghost of Henry George replied
 Land Value Tax would turn the tide
 (And it's time for us to leave her!)
 
-Alternate final verse:
-By Henry George, something’s amiss
-(Leave her Johnny leave her)
-Land Value Tax would solve this
-(And it's time for us to leave her!)
- 
 {Chorus}
 Leave her, Johnny, leave her
 O leave her, Johnny, leave her
 For the land’s not mine and the rent’s too high
 And it's time for us to leave her!
+```
+
+Alternate final verse (in the place of "The ghost of Henry George replied"):
+```
+By Henry George, something’s amiss
+(Leave her Johnny leave her)
+Land Value Tax would solve this
+(And it's time for us to leave her!)
 ```
