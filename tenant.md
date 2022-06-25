@@ -41,7 +41,7 @@ And it's time for us to leave her!
 
 We’re moving on yet once again
 (Leave her Johnny leave her)
-What is the force that drives our pain?
+What must be done to end this pain?
 (And it’s time for us to leave her!)
  
 The ghost of Henry George replied
