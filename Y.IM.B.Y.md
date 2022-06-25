@@ -20,7 +20,7 @@ C’mon, **young man**, let’s abolish the zones!
 We’ll build **right here**, dense mixed use all the time  
 Right next to the main transit line!  
 
-  {Chorus}
+  {Chorus}  
    *It’s fun to build with the Y. IM. B. Y.*  
    *It’s fun to build with the Y. IM. B. Y.*  
 
