@@ -6,6 +6,8 @@ Lyrics: Lars A. Doucet
 
 License: [Creative Commons Attribution 4.0 International (CC BY 4.0)](https://creativecommons.org/licenses/by/4.0/)
 
+(Thought: "Hey y'all" might be a workable substitute for "Young man" throughout)
+
 ---
 
 **Young man**, we are building a town  
