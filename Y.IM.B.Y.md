@@ -6,7 +6,7 @@ Lyrics: Lars A. Doucet
 
 License: [Creative Commons Attribution 4.0 International (CC BY 4.0)](https://creativecommons.org/licenses/by/4.0/)
 
-```
+---
 
 **Young man**, we are building a town
 I said, **young man**, welcome home come on down.
@@ -96,4 +96,4 @@ Young man, young man, I was down and out on my face
 
 Y. IM. B. Y.
 It’s fun to build with the Y. IM. B. Y.
-```
+
