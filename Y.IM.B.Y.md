@@ -62,7 +62,7 @@ Let’s fight **THOSE WHO** think that houses are crimes
 And erase these AR-BI-TRA-RY lines  
 
 **Hey y’all**, we’re still right at the start  
-So come **on ’all**, let’s all join and take part  
+So come **on y’all**, let’s all join and take part  
 With **the Georgists** right along hand in hand  
 We’ll build homes and we’ll tax the land!  
 
