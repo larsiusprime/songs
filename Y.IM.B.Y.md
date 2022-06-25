@@ -21,17 +21,17 @@ We’ll build **right here**, dense mixed use all the time
 Right next to the main transit line!  
 
   {Chorus}
-  It’s fun to build with the Y. IM. B. Y.  
-  It’s fun to build with the Y. IM. B. Y.  
+   *It’s fun to build with the Y. IM. B. Y.*  
+   *It’s fun to build with the Y. IM. B. Y.*  
 
-  They build everything for all of the townsfolk  
-  You can live there and not go broke  
+   *They build everything for all of the townsfolk*  
+   *You can live there and not go broke*  
 
-  It’s fun to build with the Y. IM. B. Y.  
-  It’s fun to build with the Y. IM. B. Y.  
+   *It’s fun to build with the Y. IM. B. Y.*  
+   *It’s fun to build with the Y. IM. B. Y.*  
 
-  You can get a good job, and not pay so much rent,  
-  While the NIMBYs can all get bent!  
+   *You can get a good job, and not pay so much rent,*  
+   *While the NIMBYs can all get bent!*  
 
 **Young man**, go ahead grab your bike  
 I said, **young man**, let the cars take a hike  
@@ -44,17 +44,17 @@ So just **come here**, and the Y. IM. B. Y’s
 Will fight for homes by your side!  
 
   {Chorus}  
-  It’s fun to build with the Y. IM. B. Y.  
-  It’s fun to build with the Y. IM. B. Y.  
+  *It’s fun to build with the Y. IM. B. Y.*  
+  *It’s fun to build with the Y. IM. B. Y.*  
   
-  They build everything for all of the townsfolk  
-  You can live there and not go broke  
+  *They build everything for all of the townsfolk*  
+  *You can live there and not go broke*  
   
-  It’s fun to build with the Y. IM. B. Y.  
-  It’s fun to build with the Y. IM. B. Y.  
+  *It’s fun to build with the Y. IM. B. Y.*  
+  *It’s fun to build with the Y. IM. B. Y.*  
 
-  You can get a good job, and not pay so much rent,  
-  While the NIMBYs can all get bent!  
+  *You can get a good job, and not pay so much rent,*  
+  *While the NIMBYs can all get bent!*  
 
 **Young man**, I was once in your place  
 I said **I was** down and out on my face  
